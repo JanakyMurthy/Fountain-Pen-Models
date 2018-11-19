@@ -7,3 +7,6 @@ I love to understand how fountain pen works and write with them. This page conta
 3. [The FPN Network](http://www.fountainpennetwork.com) : The world wide fountain pen community. They also have an very active group in facebook.
 
 4. [Krishna pens and inks](http://krishnapens.in/): While I am not promoting anyone, I found their inks to be of good quality and reasonably priced compared to other inks that we get in India. It's a good alternative for the expensive Japanese/Foriegn inks.
+
+
+Will update this page later. 
