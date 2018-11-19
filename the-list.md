@@ -1,4 +1,4 @@
-# Beginner Pens#
+# Beginner Pens
 
 * Platinum Preppy - bought this
 * Parker Vector - bought this
@@ -9,7 +9,7 @@
 * Waterman Hemisphere II - Mattec Black with Gold Trim Fountain Pen
 
 
-# Gold nib Pens #
+# Gold nib Pens 
 
 * Pilot Custom 74
 * LAMY 2000
