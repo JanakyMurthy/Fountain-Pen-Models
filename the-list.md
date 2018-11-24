@@ -20,3 +20,4 @@
 * Parker Duofold Classic
 * Visconti Homo Sapiens (actually Palladium nib)
 * Pilot Custom 823
+* Visconti Empire (Won't be able to afford it in this life)
