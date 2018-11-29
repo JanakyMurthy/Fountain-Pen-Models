@@ -15,7 +15,7 @@
 * Pilot Custom 74
 * LAMY 2000
 * Pilot Vanishing Point
-* Platinum 3776
+* Platinum 3776 Century
 * Pilot Falcon 
 * Parker Duofold Classic
 * Visconti Homo Sapiens (actually Palladium nib)
