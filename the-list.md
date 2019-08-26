@@ -9,16 +9,24 @@
 ## KAWECO
 * kaweco perkeo
 
-
+## Waterman
 * Waterman Hemisphere II 
 * Waterman Hemisphere GT
+
+## Faber Castel
 * Faber Castel Ambition
 * Faber Castel Loom
+
+## Moonman
 * Moonman M2
 * Moonman C2
+
+## TWSBI
 * TWSBI ECO
 * TWSBI Mini
 * TWSBI 580
+
+## Sheaffar
 * Sheaffar 100
 
 
