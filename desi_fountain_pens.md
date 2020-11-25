@@ -2,6 +2,10 @@
 
 Finding fountain pen shops/brand in India is quite tough. I think this is mainly due to the fact that they don't spend much on advertising. Anyway, here is a growing list of where to buy fountain pens and inks in India.
 
+There seems to be many more than what I am listing here: https://www.livemint.com/news/india/the-unmaking-of-india-s-fountain-pens-11578585835963.html
+
+But I'll avoid adding them till someone gives me a firsthand review.
+
 1. **Ratnamson Pens**
 
 The oldest handmade fountain pen makers from Rajahmundry with rich history. I looove their pens. The make pens on request and what surprises me is how affordable these pens are (starts as low as Rs.250). The only downside I experienced is that they take a long time to make the pen. This is understandable as the pen maker is very old now. 
